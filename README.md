@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning various detective and fantasy works
 - 💞️ I’m looking to collaborate on idk :D
 - 📫 How to reach me - Discord - @anydefax 
-- 😄 Pronouns: he
+- 😄 Pronouns: :D
 - ⚡ Fun fact: My past nicknames - Synthesis, zimovpower, RedReacted
 
 <!---
